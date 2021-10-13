@@ -7,3 +7,4 @@
 ### Thought Provoking
 * [The Rules for Rulers](https://youtu.be/rStL7niR7gs?list=PLEWiMpGOvcAXK45kx-YCVdNiI-y5fo_u3)
 * [Thinking in Bets | Annie Duke | Talks at Google](https://youtu.be/uYNsSeYjkp4?list=PLEWiMpGOvcAXK45kx-YCVdNiI-y5fo_u3)
+* [The Collapse of The American Dream Explained in Animation](https://youtu.be/mII9NZ8MMVM?list=PLEWiMpGOvcAXK45kx-YCVdNiI-y5fo_u3)
